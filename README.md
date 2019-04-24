@@ -1,6 +1,10 @@
 # Nibiru-Reserve-System
 # PORT CROSS CHAIN SWAP IF POSSIBLE ( via BENNETTGROUPGLOBAL.com ) ???
 
+
+Working with all authorities to create a safer place for the new generation.
+
+
 The financial system for Noocratic Global Financial Services
 
 
